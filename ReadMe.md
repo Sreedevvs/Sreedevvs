@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently studying<br>👯 I’m looking to collab<br>🌱 I’m currently learning java<br>💬 Ask me about<br>
+🔭 Hey!i'm Sreedevvs<br>👯 I’m looking to collab<br>🌱 I’m currently learning java<br>💬 Ask me about<br>
 
 
 ## 🌐 Socials:
